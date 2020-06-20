@@ -1,2 +1,0 @@
-# Hutchinson---IT
-Hutchinson - RMIT
